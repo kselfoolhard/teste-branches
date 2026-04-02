@@ -1,2 +1,2 @@
 História bem engraçada hahahahaha
-vai corinthians
+o Kaua tinha hiperfoco em parkour
