@@ -2,7 +2,8 @@ História bem engraçada hahahahaha
 
 Sofia- quando eu era pequena eu morria de medo que se eu comesse uma fruta e engolisse a semente dela ia nacer um pé da fruta na minha barriga
 
-Kaua- o Kaua tinha hiperfoco em parkour
+Kaua- o Kaua tinha hiperfoco em parkour e gostava do corinthians, vai corinthians
+
 
 Marcela- Quando eu era criança, inventei que queria ser “cientista de comidas”. Basicamente, isso significava misturar tudo que eu achava na cozinha e convencer alguém a provar.
 
