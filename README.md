@@ -5,3 +5,5 @@ Sofia- quando eu era menor eu era muito ruim andando de bicicleta, e eu inventei
 Kaua- o Kaua tinha hiperfoco em parkour
 
 Marcela- Quando eu era criança, inventei que queria ser “cientista de comidas”. Basicamente, isso significava misturar tudo que eu achava na cozinha e convencer alguém a provar.
+
+Enzo- Tinha um filme quando eu era pequeno que o nome era "Nem que a cava Tussa" e por um bom tempo eu achei (provavelmente até uns 10-12 anos) que o nome era Vick a vaca tussa, e eu sismava que o nome da vaca era vick por algum motivo. 
