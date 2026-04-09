@@ -1,6 +1,6 @@
 História bem engraçada hahahahaha
 
-Sofia- quando eu era menor eu era muito ruim andando de bicicleta, e eu inventei de sair para andar com as minhas amigas sabendo que eu era a pior ai. Quando a gente tava indo atravessar a rua elas foram na frente e eu demorei pra engatar e fiquei, ate que quando eu fui atravessar tinha um carro e eu me desesperei e virei a bicicleta na direção dele meio que "atropelando" o carro e não ao contrario. Na hora eu fiquei mt nervosa e só consegui sair correndo de verngonha e chorando. 
+Sofia- quando eu era pequena eu morria de medo que se eu comesse uma fruta e engolisse a semente dela ia nacer um pé da fruta na minha barriga
 
 Kaua- o Kaua tinha hiperfoco em parkour
 
